@@ -1,5 +1,5 @@
 ### Hi, mate 👋
 
-- 🌱 API-ANTICHEAT, JustRDM, 1337Premium, LastSide
+- 🌱 API-ANTICHEAT
 - 📫 definitely not PK!?#1337
 - ⚡ lol
